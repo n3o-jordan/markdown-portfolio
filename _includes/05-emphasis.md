@@ -1,7 +1,7 @@
-*This text will be italic*
-_This will also be italic_
+*My name is baddy*
+_or Mrs. Lauryn Hill _
 
-**This text will be bold**
-__This will also be bold__
+**LOok at me**
+__ :heart_eyes:  :heart_eyes:  :heart_eyes:  :heart_eyes:  :heart_eyes: __
 
-_You **can** combine them_
+_You: ** :smirk: what about me**  ??_
